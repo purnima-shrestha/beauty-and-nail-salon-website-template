@@ -1,5 +1,5 @@
 Demo here:
-https://templatesjungle.gumroad.com/l/beauty-and-nail-salon-website-template
+https://templatesjungle.com/downloads/beauty-beauty-and-nail-salon-bootstrap5-html-css-website-template/
 
 CREDITS & REFERENCES
 
